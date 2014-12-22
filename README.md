@@ -32,7 +32,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-[Elegy on the death of Henry VII]1509Approx. 3 KB of XML-encoded text transcribed from 1 1-bit group
+〈…〉 lde all wrapped in wretchydnes〈…〉  pompes ſo gay & gloryous〈…〉 aſures / and all thy ryches〈…〉  b
 **Types of content**
 
   * There are 56 **verse** lines!
